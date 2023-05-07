@@ -1,3 +1,3 @@
-# Welcome to FORMWORK STUDIOS
+# Welcome to Formwork Studios
 
 Website coming soon.
